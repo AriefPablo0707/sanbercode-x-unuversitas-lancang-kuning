@@ -1,1 +1,1 @@
-# sanbercode-x-unuversitas-lancang-kuning
+# sanbercode-x-universitas-lancang-kuning
